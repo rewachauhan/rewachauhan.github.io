@@ -1,3 +1,3 @@
 # rewachauhan.github.io
 
-#this is a covid-19 live tr
+#this is a covid-19 live t
